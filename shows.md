@@ -1,4 +1,1 @@
-<head></head><body>
-<h1>july 15 @ vine 2142 e 4th st long beach ca 90814
-</h1>
-</p></body>
+july 15 @ vine 2142 e 4th st long beach ca 90814
